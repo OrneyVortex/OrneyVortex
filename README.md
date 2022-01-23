@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rahuloverhere999@gmail.com**
 
-- ⚡ Fun fact **I think I am funny!**
+- ⚡ **I drink a lot of tea**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
