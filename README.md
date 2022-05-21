@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working **making this world a better place?**
 
-- 🌱 I’m currently learning **Django.**
+- 🌱 I’m currently learning **ReactJS.**
 
 - 📫 How to reach me **rahuloverhere999@gmail.com**
 
